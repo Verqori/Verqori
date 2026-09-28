@@ -2,7 +2,7 @@
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
                 
                 
-                I follow        people
+           I follow        people
 
       who   has   beautiful 
       
