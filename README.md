@@ -1,10 +1,11 @@
 ## heya^^
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
                 
-                 I follow        people 
-                 who   has   beautiful 
-                 ponys    and are my       
-                 friends! ✦
+      
+  I follow        people 
+      who   has   beautiful 
+             ponys    and are my       
+                     friends! ✦
 <!--
 **Verqori/Verqori** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
